@@ -17,4 +17,5 @@
 ### ⭐Связь со мной:
 - ╭◦┊дс / тг - dikoz934
 - ┃◦┊вк- dikoz
+- ┃◦┊почта - dikoz389@gmail.com
 - ╰◦┊ют- Dikoz World
